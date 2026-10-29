@@ -1,0 +1,1 @@
+# miniguia-estudos-notebooklm-Gest-o-Logistica-e-cadeia-de-suprimentos
